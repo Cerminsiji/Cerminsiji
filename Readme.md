@@ -7,11 +7,8 @@
 
 - 🔭 Sekarang sih lg nganggur tp suka **Liat anime mulu**
 
-- 📝 I regularly write articles on [https://nowar.eu.org](https://nowar.eu.org)
+- 📝 Nulis kagak tp ya ini sih [https://nowar.eu.org](https://nowar.eu.org)
 
-- 📫 How to reach me **Cermin@nowar.eu.org**
-
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
